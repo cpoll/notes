@@ -3,9 +3,9 @@
 - 3tbsp~ Thai curry paste (red, green, massaman)
     - Making this from scratch and authentic is a bit annoying, procuring the ingredients is tough
 - 1cup broth
-- 3 clove garlic
+- 3 clove minced garlic
 - 1-inch ginger grated
-- 1tbsp oil
+- 1tbsp neutral oil
 - Thai basil
 
 ### Veggies
