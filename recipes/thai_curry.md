@@ -29,7 +29,7 @@
 # Steps
 - Heat the oil
 - [OPTIONAL] Chicken or beef would go in here if you were using it, 5min~ and get a nice sear, then remove
-- Aromatize the ginger and garlic
+- Aromatize the ginger, garlic, lemongrass
 - Turn down to medium-high, toss in the fat at the top of the coconut milk, bring to a boil and look for a separation between milk and fat (clear layer on the top)
 - Throw in the 3tbsp~ curry paste (and optional 1-2tbsp tomato paste), simmer for 5min
 - Throw in the vegetables, 1cup broth, tofu or meat, and the rest of the coconut milk
