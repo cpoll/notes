@@ -11,12 +11,14 @@
 - Empty tofu onto paper towel to drain excess oil (pat it down)
 
 ## Sweet and Sour Sauce
-2 tbsp granulated sugar
-2 tbsp tomato paste
-1 tbsp apple cider vinegar
-2 tsp soy sauce
-6 tbsp water
-2 tsp cornstarch
+- 2 tbsp granulated sugar
+- 2 tbsp tomato paste
+- 1 tbsp apple cider vinegar
+- 2 tsp soy sauce
+- 6 tbsp water
+- 2 tsp cornstarch
+- 1-2 clove garlic
+- half-inch of ginger, grated
 optional lime juice, lemon juice, shanxi vinegar, etc. for adjusting
 
 - Mix ingredients together, this is the base
